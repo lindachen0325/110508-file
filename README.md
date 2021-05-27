@@ -1,1 +1,1 @@
-# 專題github文件
+# ACT JOURNAL
